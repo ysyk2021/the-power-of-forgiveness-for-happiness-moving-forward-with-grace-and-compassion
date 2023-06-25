@@ -1,5 +1,4 @@
-Chapter 5: Maximizing Your Happiness through Forgiveness: Enhancing Relationships and Social Connections
-========================================================================================================
+# Enhancing Relationships and Social Connections
 
 Forgiveness practice can promote happiness and well-being by enhancing relationships and social connections. In this chapter, we will explore how forgiveness can strengthen these aspects of one's life.
 

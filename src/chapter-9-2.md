@@ -1,5 +1,4 @@
-Chapter 9: Ethical Considerations in Forgiveness Practice: Balancing Personal and Interpersonal Interests
-=========================================================================================================
+# Balancing Personal and Interpersonal Interests
 
 While forgiveness practice can promote happiness, healing, and growth, it is important to consider the ethical implications of forgiveness practice. In this chapter, we will explore how to balance personal and interpersonal interests when practicing forgiveness.
 

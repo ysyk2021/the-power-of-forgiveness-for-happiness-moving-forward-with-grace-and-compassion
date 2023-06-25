@@ -1,5 +1,4 @@
-Chapter 3: The Psychology of Forgiveness: Exploring the Healing Power of Forgiveness
-====================================================================================
+# Exploring the Healing Power of Forgiveness
 
 Forgiveness is a powerful psychological process that can lead to healing and growth in various areas of life. In this chapter, we will explore the psychology of forgiveness and its healing power.
 

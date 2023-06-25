@@ -1,5 +1,4 @@
-Chapter 5: Maximizing Your Happiness through Forgiveness: Improving Mental Health and Well-being
-================================================================================================
+# Improving Mental Health and Well-being
 
 Forgiveness can have significant benefits for mental health and well-being. In this chapter, we will explore how forgiveness can improve your psychological functioning and promote greater happiness and inner peace.
 

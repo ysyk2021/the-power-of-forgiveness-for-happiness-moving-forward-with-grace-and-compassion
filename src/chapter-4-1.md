@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Practicing Forgiveness: Cultivating Empathy and Compassion
-====================================================================================
+# Cultivating Empathy and Compassion
 
 Cultivating empathy and compassion are essential techniques for practicing forgiveness. In this chapter, we will explore how these qualities can help you become more forgiving.
 

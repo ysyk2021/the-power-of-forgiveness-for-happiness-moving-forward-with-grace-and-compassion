@@ -1,5 +1,4 @@
-Chapter 6: Measuring Success in Forgiveness Practice: Key Performance Indicators (KPIs) for Measuring Success
-=============================================================================================================
+# Key Performance Indicators (KPIs) for Measuring Success
 
 Practicing forgiveness is an ongoing journey that requires patience, commitment, and self-awareness. In this chapter, we will explore key performance indicators (KPIs) for measuring success in forgiveness practice.
 

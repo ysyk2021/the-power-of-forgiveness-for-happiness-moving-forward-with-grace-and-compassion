@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Obstacles to Forgiveness Practice: Common Obstacles to Forgiveness Practice
-=================================================================================================
+# Common Obstacles to Forgiveness Practice
 
 Practicing forgiveness can be challenging, as individuals may face various obstacles and barriers along the way. In this chapter, we will explore some common obstacles to forgiveness practice.
 

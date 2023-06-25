@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Recap of Key Points
-===========================================
+# Recap of Key Points
 
 In this book, we have explored the power of forgiveness for promoting happiness, healing, and growth in various areas of life. Here is a recap of the key points covered:
 

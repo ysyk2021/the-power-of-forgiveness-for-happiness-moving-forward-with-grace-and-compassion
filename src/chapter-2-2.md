@@ -1,5 +1,4 @@
-Chapter 2: Understanding Forgiveness: Benefits of Practicing Forgiveness
-========================================================================
+# Benefits of Practicing Forgiveness
 
 Forgiveness is a powerful process that can lead to healing and growth in various areas of life. In this chapter, we will explore the benefits of practicing forgiveness.
 

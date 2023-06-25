@@ -1,5 +1,4 @@
-Chapter 6: Measuring Success in Forgiveness Practice: Qualitative and Quantitative Methods for Evaluation
-=========================================================================================================
+# Qualitative and Quantitative Methods for Evaluation
 
 Practicing forgiveness is an ongoing journey that requires patience, commitment, and self-awareness. In this chapter, we will explore qualitative and quantitative methods for evaluating success in forgiveness practice.
 

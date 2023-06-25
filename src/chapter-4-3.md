@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Practicing Forgiveness: Using Communication and Conflict Resolution Skills
-====================================================================================================
+# Using Communication and Conflict Resolution Skills
 
 Practicing forgiveness requires effective communication and conflict resolution skills. In this chapter, we will explore techniques for practicing forgiveness using these skills.
 

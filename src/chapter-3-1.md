@@ -1,5 +1,4 @@
-Chapter 3: The Psychology of Forgiveness: Understanding the Impact of Grudges and Resentment
-============================================================================================
+# Understanding the Impact of Grudges and Resentment
 
 Grudges and resentment can have a significant impact on mental health and well-being. In this chapter, we will explore the psychology of grudges and resentment and their impact on forgiveness.
 

@@ -1,5 +1,4 @@
-Chapter 2: Understanding Forgiveness: Definition of Forgiveness
-===============================================================
+# Definition of Forgiveness
 
 Forgiveness is a complex and multifaceted process that involves letting go of negative emotions towards oneself or others. In this chapter, we will explore the definition of forgiveness and its various components.
 

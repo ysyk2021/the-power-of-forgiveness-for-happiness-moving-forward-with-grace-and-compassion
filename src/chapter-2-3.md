@@ -1,5 +1,4 @@
-Chapter 2: Understanding Forgiveness: Common Myths about Forgiveness
-====================================================================
+# Common Myths about Forgiveness
 
 There are several common myths about forgiveness that can hinder the forgiveness process. In this chapter, we will explore these myths and dispel them.
 

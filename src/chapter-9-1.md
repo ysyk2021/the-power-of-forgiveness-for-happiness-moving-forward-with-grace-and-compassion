@@ -1,5 +1,4 @@
-Chapter 9: Ethical Considerations in Forgiveness Practice: Understanding Ethical Guidelines and Standards
-=========================================================================================================
+# Understanding Ethical Guidelines and Standards
 
 Forgiveness is a deeply personal and emotional process, but it also involves ethical considerations. In this chapter, we will explore ethical guidelines and standards that should be considered when practicing forgiveness.
 

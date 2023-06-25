@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Importance of Forgiveness for Happiness
-================================================================
+# Importance of Forgiveness for Happiness
 
 Forgiveness is a powerful tool for promoting happiness, healing, and growth in various areas of life. In this chapter, we will explore the importance of forgiveness for happiness.
 

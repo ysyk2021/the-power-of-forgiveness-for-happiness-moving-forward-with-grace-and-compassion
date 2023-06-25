@@ -1,5 +1,4 @@
-Chapter 3: The Psychology of Forgiveness: Challenging and Changing Negative Thought Patterns
-============================================================================================
+# Challenging and Changing Negative Thought Patterns
 
 Forgiveness involves letting go of negative emotions and thoughts towards oneself or others. In this chapter, we will explore how challenging and changing negative thought patterns can facilitate forgiveness.
 
