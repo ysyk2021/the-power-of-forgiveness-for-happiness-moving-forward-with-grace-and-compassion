@@ -8,5 +8,4 @@ This book covers a wide range of topics related to forgiveness, including why it
 
 Whether you're struggling to forgive someone who has hurt you or seeking to cultivate forgiveness in your daily life, this book can help you unlock the power of forgiveness for greater happiness and fulfillment. By letting go of anger and resentment and moving forward with grace and compassion, you can achieve inner peace and live a more fulfilling life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
