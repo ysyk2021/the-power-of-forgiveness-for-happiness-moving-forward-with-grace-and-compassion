@@ -1,4 +1,4 @@
-Chapter: Cultivating Empathy and Compassion
+Cultivating Empathy and Compassion
 ===========================================
 
 In this chapter, we will explore the importance of cultivating empathy and compassion as integral components of the power of forgiveness for promoting happiness and moving forward with grace. By developing these qualities, individuals can enhance their capacity to forgive, deepen their understanding of others, and foster meaningful connections.

@@ -1,4 +1,4 @@
-Chapter: Using Communication and Conflict Resolution Skills
+Using Communication and Conflict Resolution Skills
 ===========================================================
 
 In this chapter, we explore the importance of effective communication and conflict resolution skills in cultivating forgiveness, promoting happiness, and moving forward with grace and compassion. Communication is the foundation of building and maintaining healthy relationships, while conflict resolution skills enable us to navigate disagreements and restore harmony. By honing these skills, individuals can enhance their ability to forgive, foster understanding, and create an environment of compassion and happiness.

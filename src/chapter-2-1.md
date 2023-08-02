@@ -1,4 +1,4 @@
-Chapter: Definition of Forgiveness
+Definition of Forgiveness
 ==================================
 
 In this chapter, we delve into the concept of forgiveness, exploring its meaning, significance, and transformative power. Understanding the true essence of forgiveness is crucial for harnessing its potential to cultivate happiness, promote personal growth, and move forward with grace and compassion.

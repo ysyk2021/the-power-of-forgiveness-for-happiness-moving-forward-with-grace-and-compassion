@@ -1,4 +1,4 @@
-Chapter: Common Obstacles to Forgiveness Practice
+Common Obstacles to Forgiveness Practice
 =================================================
 
 In this chapter, we explore the common obstacles that individuals may encounter on their journey towards forgiveness. By understanding these obstacles, individuals can develop strategies to overcome them and cultivate a practice of forgiveness that brings about happiness, grace, and compassion.

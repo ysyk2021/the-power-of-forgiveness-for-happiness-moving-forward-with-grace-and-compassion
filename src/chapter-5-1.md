@@ -1,4 +1,4 @@
-Chapter: Improving Mental Health and Well-being
+Improving Mental Health and Well-being
 ===============================================
 
 In this chapter, we explore how forgiveness can positively impact mental health and overall well-being. By embracing forgiveness, individuals can experience profound shifts in their emotional state, resilience, and overall happiness. This chapter delves into the ways forgiveness contributes to improving mental health and fostering a greater sense of well-being.

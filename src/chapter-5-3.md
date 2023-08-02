@@ -1,4 +1,4 @@
-Chapter: Strengthening Personal Growth and Self-esteem
+Strengthening Personal Growth and Self-esteem
 ======================================================
 
 In this chapter, we delve into the ways in which forgiveness strengthens personal growth and fosters a sense of self-esteem. By embracing forgiveness, individuals can embark on a journey of self-discovery, cultivate resilience, and develop a positive self-image.
