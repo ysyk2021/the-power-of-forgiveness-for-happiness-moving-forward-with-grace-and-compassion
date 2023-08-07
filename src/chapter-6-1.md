@@ -46,5 +46,4 @@ In this chapter, we will explore the key performance indicators (KPIs) that can 
 
 * **Service Hours**: Track the number of hours spent engaging in service-oriented activities aimed at promoting forgiveness, compassion, and happiness. This KPI measures the contribution made towards creating a more compassionate and forgiving society.
 
-
 By utilizing these KPIs, individuals can gain valuable insights into their progress and the transformative power of forgiveness in promoting happiness, personal growth, and creating a more compassionate world.
