@@ -1,4 +1,4 @@
-Chapter 1: Definition of Forgiveness
+Definition of Forgiveness
 ====================================
 
 Forgiveness is a profound and transformative act that has the power to bring happiness, promote personal growth, and cultivate grace and compassion in our lives. It is an essential aspect of our journey towards healing and moving forward.
