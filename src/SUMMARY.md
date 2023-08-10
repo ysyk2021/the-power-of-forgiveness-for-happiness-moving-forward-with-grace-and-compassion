@@ -25,7 +25,6 @@
   - [Common Obstacles to Forgiveness Practice](chapter-7-1.md)
   - [Strategies for Overcoming Challenges](chapter-7-2.md)
 - [Chapter 8: Case Studies of Successful Forgiveness Practice](chapter-8.md)
-  - [Real-life Examples of Individuals who have Experienced Happiness through Forgiveness Practice](chapter-8-1.md)
 - [Chapter 9: Ethical Considerations in Forgiveness Practice](chapter-9.md)
   - [Understanding Ethical Guidelines and Standards](chapter-9-1.md)
   - [Balancing Personal and Interpersonal Interests](chapter-9-2.md)
