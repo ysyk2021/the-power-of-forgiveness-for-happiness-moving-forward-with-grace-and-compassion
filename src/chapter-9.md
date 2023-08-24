@@ -1,5 +1,3 @@
-Chapter 9: Ethical Considerations in Forgiveness Practice
-=========================================================
 
 Forgiveness practice can have significant emotional and psychological consequences for both the forgiver and the forgiven. In this chapter, we will explore ethical considerations that should be taken into account when practicing forgiveness.
 

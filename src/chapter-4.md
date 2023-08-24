@@ -1,5 +1,3 @@
-Chapter 4: Techniques for Practicing Forgiveness
-================================================
 
 Practicing forgiveness requires a combination of techniques that involve cultivating empathy and compassion, developing self-awareness and mindfulness, and using communication and conflict resolution skills. In this chapter, we will explore each of these techniques in more detail.
 

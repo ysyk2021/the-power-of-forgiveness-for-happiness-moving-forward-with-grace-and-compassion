@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Forgiveness Practice
-====================================================
 
 Practicing forgiveness is an ongoing journey that requires patience, commitment, and self-awareness. In this chapter, we will explore key performance indicators (KPIs) for measuring success in forgiveness practice, as well as qualitative and quantitative methods for evaluation.
 

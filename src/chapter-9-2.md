@@ -1,5 +1,3 @@
-Balancing Personal and Interpersonal Interests
-=========================================================
 
 In this chapter, we will explore the delicate balance between personal and interpersonal interests when it comes to forgiveness. Finding equilibrium between these two aspects is crucial for fostering happiness, personal growth, and maintaining healthy relationships.
 

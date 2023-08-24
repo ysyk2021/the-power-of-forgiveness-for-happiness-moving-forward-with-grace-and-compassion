@@ -1,5 +1,3 @@
-Chapter 3: The Psychology of Forgiveness
-========================================
 
 The psychology of forgiveness is complex and multifaceted. In this chapter, we will explore the impact of grudges and resentment, the healing power of forgiveness, and the importance of challenging and changing negative thought patterns.
 

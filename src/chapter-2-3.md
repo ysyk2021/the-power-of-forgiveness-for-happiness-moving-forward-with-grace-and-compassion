@@ -1,5 +1,3 @@
-Common Myths About Forgiveness
-=======================================
 
 In this chapter, we debunk common myths surrounding forgiveness. By dispelling these misconceptions, we can gain a deeper understanding of the true nature and power of forgiveness, enabling us to cultivate happiness, move forward with grace, and embrace compassion.
 

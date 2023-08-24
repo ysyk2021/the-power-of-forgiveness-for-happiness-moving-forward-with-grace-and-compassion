@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Happiness through Forgiveness
-========================================================
 
 Forgiveness is a powerful tool for promoting happiness and well-being. In this chapter, we will explore how forgiveness can maximize your happiness in multiple areas of life.
 

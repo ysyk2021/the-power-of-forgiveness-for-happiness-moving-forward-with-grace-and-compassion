@@ -1,5 +1,3 @@
-Understanding the Impact of Grudges and Resentment
-=============================================================
 
 Grudges and resentment are powerful emotions that can have a significant impact on our happiness and well-being. In this chapter, we will explore the detrimental effects of holding onto grudges and harboring resentment. By understanding these impacts, we can begin to recognize the importance of forgiveness in moving forward with grace and compassion.
 
