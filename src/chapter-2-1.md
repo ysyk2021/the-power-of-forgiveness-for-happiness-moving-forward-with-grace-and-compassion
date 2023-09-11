@@ -1,5 +1,4 @@
-Chapter: Definition of Forgiveness
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the profound concept of forgiveness and its significance in fostering happiness, personal growth, and healing. We delve into the multifaceted nature of forgiveness, examining its definition, key components, and the transformative power it holds within our lives.
 
